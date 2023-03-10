@@ -1,0 +1,1 @@
+Seorang anak kecil sedang pergi belanja ke pasar.
